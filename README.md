@@ -1,5 +1,5 @@
 # 💫 About Me:
-- 🔭 I’m currently working on website development.<br>- 📫 How to reach me: perrotta.francesco.job@gmail.com<br>- ⚡ Fun fact: I love play the piano and I love Martial arts<br> - ❤️​ I love Beatrice on GitHub ❤️​❤️​❤️​
+- 🔭 I’m currently working on website development.<br>- 📫 How to reach me: perrotta.francesco.job@gmail.com<br>- ⚡ Fun fact: I love play the piano and I love Martial arts<br> - ❤️​ I love Pmizya on GitHub ❤️​❤️​❤️​
 
 
 ## 🌐 Socials:
